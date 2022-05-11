@@ -1,6 +1,6 @@
 About Me:
 
-I'm Kevin Valencia (he/him). I'm 17, graduating out of high school soon, and aspire to work within computer engineering or science.
+I'm Kevin Valencia (he/him). I'm 18, and going to Texas A&M for electrical and computer engineering.
 
 Contact:
 
