@@ -1,6 +1,6 @@
 About Me:
 
-I'm Kevin Valencia (he/him). I'm 18, and going to Texas A&M for electrical and computer engineering.
+I'm Kevin Valencia (he/him). I'm 19, and going to Texas A&M for electrical engineering and physics.
 
 Contact:
 
